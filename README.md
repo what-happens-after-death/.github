@@ -1,1 +1,3 @@
-# .github
+# *What Happens After Death? | Shaolin Wisdom & Living With Purpose*
+## *Explore profound spiritual insights about mortality and what truly matters. Learn why focusing on living fully today, cultivating energy, and developing character is more important than speculating about the afterlife.* [More details…](https://spiritualkhazaana.com/web-stories/what-happens-after-death/)
+## #WhatHappensAfterDeath #Mortality #SpiritualGrowth #ShiHengYi #LiveWithPurpose #EnergyMastery #Shaolin #GenerationalHealing #PresentMoment #DeathAwareness  #Afterlife #SpiritualGrowth #HopeAfterLoss #SoulJourney #Mindfulness
